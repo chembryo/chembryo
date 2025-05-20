@@ -1,4 +1,4 @@
-|| Our discord is @chembryo. AsylumSkin is the name of our system. ||
+|| Our discord is @chembryo. AsylumSkin is the name of our system. || Unconventional provocateur speckled with rowdy artistry in the seldom registry. 
 
 **[PT BOUNDARIES]**
 
