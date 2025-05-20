@@ -1,4 +1,4 @@
-|| Our discord is @chembryo. AsylumSkin is the name of our system. || Unconventional provocateur speckled with rowdy artistry in the seldom registry. 
+|| Our discord is @chembryo. AsylumSkin is the name of our system. ||
 
 **[PT BOUNDARIES]**
 
@@ -6,7 +6,7 @@
 
 ![tumblr_874bf6cd64c71269bf292b495227b227_65f21c8f_100](https://github.com/user-attachments/assets/ed3731e6-b24f-4579-a76c-0052d75f5d66)
 
-I am an exultant of suspended disease-fuelled arthritic musing of the docile population. I prey with a scornful valour that happens to wager toward needless friendliness in socialisation. Say hello yes I enjoy this . I love you.
+Unconventional provocateur. I am an exultant of suspended disease-fuelled arthritic musing of the docile population. I prey with a scornful valour that happens to wager toward needless friendliness in socialisation. Say hello yes I enjoy this . I love you.
  
 ![IMG_2509](https://github.com/user-attachments/assets/50571351-2dc2-4e15-a470-14bf08a52c98)
 
