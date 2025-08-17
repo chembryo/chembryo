@@ -13,4 +13,4 @@ We are systemically male presenting, and will a touchy propensity crucial to the
 
 ![ezgif-1476cd41d7cafb](https://github.com/user-attachments/assets/e9b05709-a8ec-4349-9b01-f8e972a65d5c)
 
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=500)
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=10&width=600)
