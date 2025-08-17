@@ -1,4 +1,4 @@
-``` diff ! Hello
+
 || ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our system ||
 
 <**[PT BOUNDARIES]**>
