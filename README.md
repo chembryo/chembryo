@@ -1,4 +1,4 @@
-|| ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our system ||
+! || ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our system ||
 
 **[PT BOUNDARIES]**
 
