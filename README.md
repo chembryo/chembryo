@@ -1,5 +1,6 @@
 
-|| ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our system ||
+|| ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our system || <img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/30557a53-e316-4a76-8e1f-da69c6a070c9" />
+
 
 ```**[PT BOUNDARIES]**```
 
