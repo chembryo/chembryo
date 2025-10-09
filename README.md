@@ -5,7 +5,7 @@
 
 ```**[PT BOUNDARIES]**```
 
-**C+H Luvr of multitudinous vector // Pref2B Off-Tab but I love interacting, so please refer to W2I !!!**
+** // Pref2B Off-Tab but I love interacting and sitting with people, so please refer to W2I. **
 
 ![IMG_2509](https://github.com/user-attachments/assets/50571351-2dc2-4e15-a470-14bf08a52c98)
 
