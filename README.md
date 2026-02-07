@@ -1,7 +1,7 @@
 
 <img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/30557a53-e316-4a76-8e1f-da69c6a070c9" /> <img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/f145e4bd-6dde-47d9-915c-e38d1610e885" /> 
 
-|| ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our root system, our subsystem is **GlassLore.** ||
+|| ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our base system, our root subsystem is **GlassLore.** ||
 ![bb2](https://github.com/user-attachments/assets/c670e26e-a124-426b-a61a-cbbb4b0492fd)
 
 ```**[PT BOUNDARIES]**```
