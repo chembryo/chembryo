@@ -1,5 +1,5 @@
 
-<img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/30557a53-e316-4a76-8e1f-da69c6a070c9" /> <img width="6" height="8" alt="image" src="https://github.com/user-attachments/assets/f145e4bd-6dde-47d9-915c-e38d1610e885" /> 
+<img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/30557a53-e316-4a76-8e1f-da69c6a070c9" /> <img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/f145e4bd-6dde-47d9-915c-e38d1610e885" /> 
 
 || ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our base system, our root subsystem is **GlassLore.** <img width="1280" height="763" alt="Breaking_Bad_logo svg" src="https://github.com/user-attachments/assets/eef06dc1-4415-4b96-b267-1f3d3ad0fb09" />
  ||
