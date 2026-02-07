@@ -3,7 +3,8 @@
 
 || ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our base system, our root subsystem is **GlassLore.** <img width="40" height="20" alt="Breaking_Bad_logo svg" src="https://github.com/user-attachments/assets/eef06dc1-4415-4b96-b267-1f3d3ad0fb09" />
  ||
-![bb2](https://github.com/user-attachments/assets/c670e26e-a124-426b-a61a-cbbb4b0492fd)
+![bb2](https://github.com/user-attachments/assets/c670e26e-a124-426b-a61a-cbbb4b0492![Better_Call_Saul_logo](https://github.com/user-attachments/assets/2f739b3f-d75f-49c8-9135-425a1b209860)
+fd)
 
 ```**[PT BOUNDARIES]**```
 
