@@ -3,6 +3,7 @@
 
 || ***OUR DISCORD:*** @chembryo. **AsylumSkin** is the name of our base system, our root subsystem is **GlassLore.** <img width="40" height="20" alt="Breaking_Bad_logo svg" src="https://github.com/user-attachments/assets/eef06dc1-4415-4b96-b267-1f3d3ad0fb09" />
  ||
+ 
 ```**[PT BOUNDARIES]**```
 
 **- Pref2B off-Tab but I love interacting and sitting with people, so please refer to W2I :]**
