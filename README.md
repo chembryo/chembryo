@@ -6,7 +6,7 @@
  Our subsystem is $${\color{lightgreen}GlassLore.}$$ <img width="55" height="30" alt="Breaking_Bad_logo svg" src="https://github.com/user-attachments/assets/eef06dc1-4415-4b96-b267-1f3d3ad0fb09" /><img width="50" height="30" alt="Better_Call_Saul_logo svg" src="https://github.com/user-attachments/assets/6bd6fc08-0c36-445d-8c33-8151d9c0ef1b" /> 
  
  
-``**[PT BOUNDARIES]**``
+ $${\color{orange}**[PT BOUNDARIES]**}$$
 
 **- Pref2B off-Tab but I love interacting and sitting with people, so please refer to W2I :]**
 
