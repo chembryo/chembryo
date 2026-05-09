@@ -13,6 +13,6 @@ $${\color{orange}**[PT\space BOUNDARIES]**}$$
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![IMG_2509](https://github.com/user-attachments/assets/50571351-2dc2-4e15-a470-14bf08a52c98)
 
 
-![ezgif-1476cd41d7cafb](https://github.com/user-attachments/assets/e9b05709-a8ec-4349-9b01-f8e972a65d5c)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀         ⠀⠀   ⠀![ezgif-1476cd41d7cafb](https://github.com/user-attachments/assets/e9b05709-a8ec-4349-9b01-f8e972a65d5c)
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
