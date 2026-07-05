@@ -12,7 +12,7 @@ $${\color{orange}**[PT\space BOUNDARIES]**}$$
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![IMG_2509](https://github.com/user-attachments/assets/50571351-2dc2-4e15-a470-14bf08a52c98)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   <img width="400" height="284" alt="ups (1)" src="https://github.com/user-attachments/assets/55ce940e-44d2-4be3-ad33-683ba1c29cba" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   ⠀⠀⠀<img width="400" height="284" alt="ups (1)" src="https://github.com/user-attachments/assets/55ce940e-44d2-4be3-ad33-683ba1c29cba" />
 
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
