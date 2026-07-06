@@ -15,7 +15,7 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   ⠀⠀<img width="490" height="250" alt="zero" src="https://github.com/user-attachments/assets/87170896-3f2a-41ba-a82e-3329ecc30b3e" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   ⠀⠀<img width="400" height="250" alt="zero" src="https://github.com/user-attachments/assets/87170896-3f2a-41ba-a82e-3329ecc30b3e" />
 
 
 
