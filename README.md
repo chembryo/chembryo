@@ -4,7 +4,7 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
  
  $\color{#B8D6C2}Ourㅤsubsystemㅤis$ ㅤ $\color{#BCE072}GlassLore.$ <img width="55" height="30" alt="Breaking_Bad_logo svg" src="https://github.com/user-attachments/assets/eef06dc1-4415-4b96-b267-1f3d3ad0fb09" /><img width="50" height="30" alt="Better_Call_Saul_logo svg" src="https://github.com/user-attachments/assets/6bd6fc08-0c36-445d-8c33-8151d9c0ef1b" /> 
  
-ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ $\color{#BED4C8}[PTㅤBOUNDARIES]$
+ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ $\color{#BED4C8}[PTㅤBOUNDARIES]$
 
    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2bㅤofftabㅤbutㅤIㅤloveㅤinteracting,ㅤsoㅤpleaseㅤreferㅤtoㅤW2I.$
 
