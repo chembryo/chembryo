@@ -15,7 +15,8 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   ⠀⠀⠀<img width="450" height="300" alt="ups (1)" src="https://github.com/user-attachments/assets/55ce940e-44d2-4be3-ad33-683ba1c29cba" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   ⠀⠀⠀<img width="400" height="284" alt="great" src="https://github.com/user-attachments/assets/fae12237-22f8-48b3-9b12-29f0bc48b66b" />
+
 
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
