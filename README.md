@@ -7,7 +7,8 @@
  
 $${\color{orange}**[PT\space BOUNDARIES]**}$$
 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀| | Pref2B off-Tab but I love interacting and sitting with people, so please refer to W2I :]
+   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="731" height="332" alt="1783295309" src="https://github.com/user-attachments/assets/2787c0e7-6719-4821-96b9-33ce07b9fe77" />
+
                   
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
