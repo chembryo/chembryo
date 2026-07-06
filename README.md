@@ -6,7 +6,7 @@
  
 $${\color{orange}**[PT\space BOUNDARIES]**}$$
 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="50" height="30" alt="image_2026-07-05_200833135" src="https://github.com/user-attachments/assets/bb4dbc13-8f89-4051-a71d-2fb65613db63" />
+   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2b offtab but I love interacting, so please refer to W2I$
 
                   
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
