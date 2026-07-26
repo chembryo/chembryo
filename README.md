@@ -14,7 +14,7 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
                   
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
-   $\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤbigotedㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.ㅤIㅤamㅤa$ㅤ[vilpunk] andㅤsternlyㅤproㅤhuman-rights.$
+   $\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤbigotedㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.ㅤIㅤamㅤaㅤ[vilpunk] andㅤsternlyㅤproㅤhuman-rights.$
                                                          
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   <img width="500" height="380" alt="could it be" src="https://github.com/user-attachments/assets/c7b72033-78c0-481d-a70a-004c47051f4e" />
 
