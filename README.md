@@ -7,17 +7,17 @@ $\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F
  
  ㅤ
  
-ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ $\color{#BED4C8}[PTㅤBOUNDARIES]$
+ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ $\color{#BED4C8}[PT\spaceㅤBOUNDARIES]$
 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2bㅤofftabㅤbutㅤIㅤloveㅤinteracting,ㅤsoㅤpleaseㅤreferㅤtoㅤW2I.$
+   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2b\spaceㅤofftab\spaceㅤbut\spaceㅤI\spaceㅤlove\spaceㅤinteracting,\spaceㅤso\spaceㅤplease\spaceㅤrefer\spaceㅤto\spaceㅤW2I.$
 
                   
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
 
-$\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤhatefulㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'llㅤhaveㅤaㅤbadㅤtimeㅤhere.$
+$\color{#E08680}If\spaceㅤyou\spaceㅤfeel\spaceㅤit\spaceㅤsuitable\spaceㅤto\spaceㅤbe\spaceㅤhateful\spaceㅤtoward\spaceㅤgroups\spaceㅤof\spaceㅤpeople,\spaceㅤyou'll\spaceㅤhave\spaceㅤa\spaceㅤbad\spaceㅤtime\spaceㅤhere.$
 
-$\color{#E08680}Iㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share)  ☠︎︎  $\color{#E08680}aㅤhumanist,ㅤandㅤaㅤsecularㅤcommunist.$
+$\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share)  ☠︎︎  $\color{#E08680}a\spaceㅤhumanist,\spaceㅤand\spaceㅤa\spaceㅤsecular\spaceㅤcommunist.$
 
 
                                                          
