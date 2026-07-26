@@ -16,7 +16,8 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
 
 
 $\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤbigotedㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.ㅤIㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share) $\color{#E08680}andㅤsternlyㅤproㅤhuman-rights.$
-</details>
+
+
                                                          
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   <img width="500" height="380" alt="could it be" src="https://github.com/user-attachments/assets/c7b72033-78c0-481d-a70a-004c47051f4e" />
 
