@@ -15,7 +15,7 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
 
 
-``` $\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤbigotedㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.ㅤIㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share) $\color{#E08680}andㅤsternlyㅤproㅤhuman-rights.$
+$\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤbigotedㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.ㅤIㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share) $\color{#E08680}andㅤsternlyㅤproㅤhuman-rights.$
 
 
                                                          
