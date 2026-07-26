@@ -16,7 +16,7 @@ $\color{#B8D6C2}OURㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}
 
 
 $\color{#E08680}Ifㅤyouㅤfeelㅤitㅤsuitableㅤtoㅤbeㅤhatefulㅤtowardㅤgroupsㅤofㅤpeople,ㅤyou'reㅤgoingㅤtoㅤhaveㅤaㅤbadㅤtimeㅤhere.$
-$\color{#E08680}Iㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share)  ,  $\color{#E08680}aㅤhumanist,ㅤandㅤsternlyㅤforㅤhuman-rights.$
+$\color{#E08680}Iㅤamㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share)  ,  $\color{#E08680}aㅤhumanist,ㅤandㅤaㅤsecularㅤcommunist.$
 
 
                                                          
