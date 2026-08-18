@@ -20,8 +20,7 @@ $\color{#E08680}If\spaceㅤyou\spaceㅤfeel\spaceㅤit\spaceㅤsuitable\spaceㅤ
 $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilpunk/688965128977285120/villainpunk-evilpunk?source=share)  ☠︎︎   $\color{#E08680}a\spaceㅤhumanist,\spaceㅤand\spaceㅤa\spaceㅤsecular\spaceㅤcommunist.$ $\color{#ADBDAA}Bigots,\space puritans,\space ableists,\space or\space anything\space of\space the\space like:\space kindly\space reflect,\space and\space take\space your\space leave.$
 
 
-
-                             <img width="300" height="190" alt="ifyouhaveacomplaint" src="https://github.com/user-attachments/assets/59af1f1f-7cbc-4ad0-872f-d380cb756784" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀               ⠀⠀⠀ <img width="300" height="190" alt="ifyouhaveacomplaint" src="https://github.com/user-attachments/assets/59af1f1f-7cbc-4ad0-872f-d380cb756784" />
 
 
                                                          
