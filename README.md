@@ -23,7 +23,8 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 ⠀⠀⠀⠀⠀⠀ <img width="420" height="370" alt="ifyouhaveacomplaint (1)" src="https://github.com/user-attachments/assets/b2e10bca-39f7-4f09-9afa-921cb6423d3b" />
 
 
-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀               ![Alt text](pilot.png)
 
 
 ⠀
