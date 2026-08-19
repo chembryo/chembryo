@@ -2,7 +2,7 @@
 
 $\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}AsylumSkin$ ㅤ $\color{#E08680}is\spaceㅤthe\spaceㅤname\spaceㅤof\spaceㅤour\spaceㅤsystem.$ <img width="66" height="25" alt="image" src="https://github.com/user-attachments/assets/60fcc3b5-7c2c-468e-9246-6cfa78ec422b" /> <img width="50" height="30" alt="image" src="https://github.com/user-attachments/assets/8cf9ad5e-490f-4e67-9a78-e0456175dc35" /> 
  
- $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassLore.$ ![Alt text](brba.png) <img width="60" height="30" alt="Better_Call_Saul_logo svg" src="https://github.com/user-attachments/assets/6bd6fc08-0c36-445d-8c33-8151d9c0ef1b" /> 
+ $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassLore.$ ![Alt text](brba.png) ![Alt text](BCS.png) 
  
  
  ㅤ
