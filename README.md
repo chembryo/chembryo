@@ -31,6 +31,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 
 
-  <source media="(prefers-color-scheme: dark)" srcset="<img width="3840 height="2160" alt="Breaking-Bad-Logo" src="https://github.com/user-attachments/assets/1f919630-0d3f-49cc-b7e4-0631f4de04e1"/>
+  <img width="3840" height="2160" alt="Breaking-Bad-Logo" src="https://github.com/user-attachments/assets/01a94cf7-bc89-43fe-bcee-ac2ed953460b" />
+
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀             ⠀⠀⠀   ⠀   ⠀  ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
