@@ -29,7 +29,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   <img width="480" height="380" alt="could it be" src="https://github.com/user-attachments/assets/c7b72033-78c0-481d-a70a-004c47051f4e" />
 
 
-[![Last.fm Top Tracks](https://lastfm-github-profile.vercel.app/api?user=vlados14311&mode=list&limit=3)](https://www.last.fm/user/guewyflore)
+[![Last.fm Top Tracks](https://lastfm-github-profile.vercel.app/api?user=guewyfloe&mode=list&limit=7)](https://www.last.fm/user/guewyflore)
 
 
 
