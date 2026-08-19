@@ -24,7 +24,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 
 
-⠀      https://img1.picmix.com/output/stamp/normal/5/7/8/0/2490875_f5e3b.gif
+⠀      <https://img1.picmix.com/output/stamp/normal/5/7/8/0/2490875_f5e3b.gif>
 
 
 ⠀
