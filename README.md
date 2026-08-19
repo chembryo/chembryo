@@ -31,7 +31,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 
 
- <img width="1920" height="1080" alt="brba" src="https://github.com/user-attachments/assets/025824b7-e509-4d44-8b7e-b24dcff70d33" />
+ 
 
 
 
