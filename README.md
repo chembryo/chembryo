@@ -31,7 +31,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 
 
- ![Alt text](image_2026-08-19_161951784.png)
+
 
 
 
