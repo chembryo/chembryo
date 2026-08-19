@@ -1,6 +1,6 @@
 <img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/30557a53-e316-4a76-8e1f-da69c6a070c9" /> <img width="24" height="24" alt="image" src="https://github.com/user-attachments/assets/f145e4bd-6dde-47d9-915c-e38d1610e885" /> 
 
-$\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}AsylumSkin$ ㅤ $\color{#E08680}is\spaceㅤthe\spaceㅤname\spaceㅤof\spaceㅤour\spaceㅤsystem.$ ![Alt text](outlast.png) <img width="50" height="30" alt="image" src="https://github.com/user-attachments/assets/8cf9ad5e-490f-4e67-9a78-e0456175dc35" /> 
+$\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}AsylumSkin$ ㅤ $\color{#E08680}is\spaceㅤthe\spaceㅤname\spaceㅤof\spaceㅤour\spaceㅤsystem.$ ![Alt text](outlastsrs.png) ![Alt text](TOT.png) 
  
  $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassLore.$ ![Alt text](brba.png) ![Alt text](BCS.png) 
  
