@@ -2,7 +2,7 @@
 
 $\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F53131}AsylumSkin$ ㅤ $\color{#E08680}is\spaceㅤthe\spaceㅤname\spaceㅤof\spaceㅤour\spaceㅤsystem.$ ![Alt text](outlastsrs.png) ![Alt text](TOT.png) 
  
- $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassLore.$ ![Alt text](brba.png) ![Alt text](BCS.png) 
+ $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassClass.$ ![Alt text](brba.png) ![Alt text](BCS.png) 
  
  
  ㅤ
