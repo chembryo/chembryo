@@ -4,7 +4,7 @@ $\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F
  
  $\color{#B8D6C2}Our\spaceㅤsubsystem\spaceㅤis$ ㅤ $\color{#BCE072}GlassClass.$ ![Alt text](brba.png) ![Alt text](BCS.png) 
  
- $\color{#B8D6C2}Our\space retro\space system.$(image_2026-09-29_105904449.png)
+ $\color{#B8D6C2}Our\space retro\space system.$![Alt text](image_2026-09-29_105904449.png)
  ㅤ
  
 ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ $\color{#BED4C8}[PT\spaceㅤBOUNDARIES]$
