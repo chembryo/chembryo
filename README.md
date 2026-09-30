@@ -9,7 +9,7 @@ $\color{#B8D6C2}OUR\spaceㅤDISCORD:$ $\color{#D6C390}@chembryo.$ ㅤ $\color{#F
  
 ㅤㅤ   ㅤ             ㅤ  ㅤ  ㅤ ㅤ        ㅤㅤㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ $\color{#BED4C8}[PT\spaceㅤBOUNDARIES]$
 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2b\spaceㅤofftab\spaceㅤbut\spaceㅤI\spaceㅤlove\spaceㅤinteracting,\spaceㅤso\spaceㅤplease\spaceㅤrefer\spaceㅤto\spaceㅤW2I.$
+   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    $\color{#E08680}Pref2b\spaceㅤofftab\spaceㅤbut\spaceㅤI\spaceㅤlove\spaceㅤinteracting,\spaceㅤso\spaceㅤrefer\spaceㅤto\spaceㅤW2I.$
 
                   
 ⠀ ⠀ ⠀ ⠀       ⠀ ⠀    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="210" alt="crem" src="https://github.com/user-attachments/assets/bde52c25-7893-4ee1-b5aa-0217756a688d" />
