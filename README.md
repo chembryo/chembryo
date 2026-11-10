@@ -42,5 +42,5 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀             ⠀⠀⠀    ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
 
-   <love>🔗 Click here to expand links</love>
+
 
