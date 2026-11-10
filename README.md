@@ -40,7 +40,8 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 ㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<details>
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<summary> Friends</summary>
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#8ACCBF}Wesker$ $\color{#57140F}|$ https://github.com/metaltango
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ 
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#8ACCBF}Wesker$ $\color{#57140F}|$ https://github.com/metaltango
   ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#F05BCF}Leon$ $\color{#57140F}|$ https://github.com/Neurospecialista
    ㅤ
@@ -52,7 +53,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#57140F}|$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ https://github.com/TREVPHILIPS
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$  $\color{#B8D6C2}Sako$ $\color{#57140F}|$ (https://github.com/sakomakoo)
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#B8D6C2}Sako$ $\color{#57140F}|$ (https://github.com/sakomakoo)
    
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#B8D6C2}Andy$ $\color{#57140F}|$ https://github.com/FrancoBarbiLupara
 
