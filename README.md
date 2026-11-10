@@ -54,7 +54,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ| $\color{#B8D6C2}Sako$ | (https://github.com/sakomakoo)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ| $\color{#B8D6C2}Andy$ | https://github.com/FrancoBarbiLupara
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ| $\color{#B8D6C2}Wynd$ | https://github.com/Quarjake
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ| $\color{#B8D6C2}Wynd$ | https://github.com/Quarjake
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</details>
 
 
