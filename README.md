@@ -46,12 +46,12 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\\color{#57140F}|$ $\color{#8FBAC7}Jay$ $\color{#57140F}|$ https://github.com/skykitt
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#BA8F36}Qis$ $\color{#57140F}|$ https://github.com/Qis352
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ${\\color{#57140F}\\textsf{|}}$ $\color{#BA8F36}Qis$ $\color{#57140F}|$ https://github.com/Qis352
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#9F0930}Magnus$ $\color{#57140F}|$ https://github.com/MURKOFFK9
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ${\\color{#57140F}\\textsf{|}}$ $\color{#9F0930}Magnus$ $\color{#57140F}|$ https://github.com/MURKOFFK9
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-$\color{#57140F}|$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤhttps://github.com/TREVPHILIPS
+$\color{#57140F}|$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhttps://github.com/TREVPHILIPS
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#B8D6C2}Sako$ $\color{#57140F}|$ https://github.com/sakomakoo
    
