@@ -40,12 +40,12 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 <details>
   <summary> Friends</summary>
 
-  [Wesker](https://github.com/metaltango)
-   [Leon] https://github.com/Neurospecialista
-   [Jay](https://github.com/skykitt)
-   [Qis](https://github.com/Qis352)
+  [Wesker] (https://github.com/metaltango)
+   [Leon] (https://github.com/Neurospecialista)
+   [Jay] (https://github.com/skykitt)
+   [Qis] (https://github.com/Qis352)
    [Vash] (No links, but I love em)
-   [Trev](https://github.com/TREVPHILIPS)
+   [Trev] (https://github.com/TREVPHILIPS)
 </details>
 
 
