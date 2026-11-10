@@ -50,7 +50,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#9F0930}Magnus$ $\color{#57140F}|$ https://github.com/MURKOFFK9
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ${\color{#0969da}\texts{blue}}$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ https://github.com/TREVPHILIPS   
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ${\\color{#0969da}\textsf{blue}}$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ https://github.com/TREVPHILIPS   
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#B8D6C2}Sako$ $\color{#57140F}|$ (https://github.com/sakomakoo)
    
