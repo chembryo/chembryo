@@ -40,11 +40,11 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 ㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<details>
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<summary> Friends</summary>
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\\color{#57140F}|$ $\color{#8ACCBF}Wesker$ $\color{#57140F}|$ https://github.com/metaltango
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#8ACCBF}Wesker$ $\color{#57140F}|$ https://github.com/metaltango
   ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\\color{#57140F}|$ $\color{#F05BCF}Leon$ $\color{#57140F}|$ https://github.com/Neurospecialista
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#F05BCF}Leon$ $\color{#57140F}|$ https://github.com/Neurospecialista
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\\color{#57140F}|$ $\color{#8FBAC7}Jay$ $\color{#57140F}|$ https://github.com/skykitt
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\\color{#57140F}|$ $\color{#8FBAC7}Jay$ $\color{#57140F}|$ https://github.com/skykitt
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\\color{#57140F}|$ $\color{#BA8F36}Qis$ $\color{#57140F}|$ https://github.com/Qis352
    ㅤ
