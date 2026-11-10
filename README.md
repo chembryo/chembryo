@@ -37,7 +37,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 
 
-ㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<details>
+ㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<details>
   <summary> Friends</summary>
 
   |Wesker| (https://github.com/metaltango)
@@ -53,7 +53,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    |Trev| (https://github.com/TREVPHILIPS)
    ㅤ
    |Sako| (https://github.com/sakomakoo)
-</details>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</details>
 
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀             ⠀⠀⠀    ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=guewyfloe&count=8&width=600)
