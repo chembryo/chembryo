@@ -22,11 +22,11 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
 
 ⠀⠀⠀⠀⠀⠀ <img width="420" height="370" alt="ifyouhaveacomplaint (1)" src="https://github.com/user-attachments/assets/b2e10bca-39f7-4f09-9afa-921cb6423d3b" />
 
-<img src="skelli.gif" width="60%" height="40%">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                 
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                                          ⠀         ![Alt text](pilot.gif)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                                          ⠀        ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![Alt text](skelli.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                                                          ⠀        ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img src="skelli.gif" width="10%" height="8%">
 
 ⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     <img width="480" height="380" alt="could it be" src="https://github.com/user-attachments/assets/c7b72033-78c0-481d-a70a-004c47051f4e" />
