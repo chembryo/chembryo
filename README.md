@@ -48,7 +48,7 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
    ㅤ
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    ㅤ
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#BA8F36}Qis$ $\color{#57140F}|$ https://github.com/Qis352
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#57140F}|$ $\color{#BA8F36}Qis$ $\color{#57140F}|$ https://github.com/Qis352
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#57140F}|$ $\color{#9F0930}Magnus$ $\color{#57140F}|$ https://github.com/MURKOFFK9
