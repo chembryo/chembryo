@@ -41,10 +41,15 @@ $\color{#E08680}I\spaceㅤam\spaceㅤa$ㅤ[vilpunk](https://www.tumblr.com/evilp
   <summary> Friends</summary>
 
   [Wesker] (https://github.com/metaltango)
+  ㅤ
    [Leon] (https://github.com/Neurospecialista)
+   ㅤ
    [Jay] (https://github.com/skykitt)
+   ㅤ
    [Qis] (https://github.com/Qis352)
+   ㅤ
    [Vash] (No links, but I love em)
+   ㅤ
    [Trev] (https://github.com/TREVPHILIPS)
 </details>
 
