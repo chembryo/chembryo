@@ -62,7 +62,7 @@ $\color{#57140F}|$ $\color{#4C7B6C}Trev$ $\color{#57140F}|$ https://github.com/T
    
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#B8D6C2}Andy$ $\color{#57140F}|$ https://github.com/FrancoBarbiLupara
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#B8D6C2}Wynd$ $\color{#57140F}|$ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\\color{#57140F}\\textsf{|}}$ $\color{#6FBE46}Wynd$ $\color{#57140F}|$ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</details>
 
 
